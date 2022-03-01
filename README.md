@@ -1,3 +1,3 @@
 # blooket_hack
 Glixxzy's blooket hacks
-all of them
+some of them not all and some more
